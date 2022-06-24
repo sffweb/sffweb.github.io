@@ -1,5 +1,3 @@
-#### SFF Oriental LTD
-
 SFF Oriental is an investment management and consulting company that specializes in investments in marketable securities, Private Equity and Venture Capital. SFF Oriental also provides investment advisory services for Venture Capital transactions, as well as potential target search for M&A transactions with IT start-ups based in Israel, Cyprus and South-East Asia regions.
 
 SUITE 1404 <br />
